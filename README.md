@@ -15,5 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![WhatsApp Image 2026-04-09 at 22 01 16 (1)](https://github.com/user-attachments/assets/7456e7d6-876e-49c6-be4d-14d377ad0b69)
-![WhatsApp Image 2026-04-09 at 22 01 16 (1)](https://github.com/user-attachments/assets/c9193142-4847-42b5-a09b-419a302158ea)
+
+
+![WhatsApp Image 2026-04-09 at 22 10 24](https://github.com/user-attachments/assets/e819ee59-5952-492e-91ed-93ea664009ec)
